@@ -1,3 +1,3 @@
 # Bandog
 Amerčki bandog mastif
-Američko bandogmastiv Hrvatska
+Američko bando gmastif Hrvatska
